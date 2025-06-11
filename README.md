@@ -1,2 +1,4 @@
 # odin-recipes
-BRUH
+Hello Odin
+Ur a bitch
+Fuck this school
